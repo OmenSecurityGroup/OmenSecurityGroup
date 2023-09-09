@@ -1,4 +1,4 @@
-🌍  OmenSecurityGroup - Your Trusted Cybersecurity Solution 🌍 
+OmenSecurityGroup - Your Trusted Cybersecurity Solution
 
 📫 Get in Touch:
 🌐 Website: www.omensecuritygroup.com
